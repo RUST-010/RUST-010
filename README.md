@@ -5,6 +5,7 @@ i am NOT GOOD at socializing. i am VERY awkward but i do lovelove having + makin
 im REALLY REALLY protective over **elliot** (waapp and forsaken), **player** (blocktales), and **rust_010** (rblx myth). like insanely protective. this basically means that i HATE sharing these characters with others, even really close friends, because i so closely relate to them / enjoy them. but if you like these characters too, thats fine !! i won't come for your throat for it!
 
 i roleplay and i love roleplaying. i've been doing it for almost 7 years now. i write pretty literate but i prefer to mirror my rp partner's responses unless im super motivated. PLEEEEEEEASE do not make ANY character.ai jokes or whatever it just makes me mad and ill turn passive aggressive
+
 ``                                                                                                                                 ``
 
 dni:
