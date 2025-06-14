@@ -1,7 +1,18 @@
-for those who know dede:
+byi:
 
-NO he's not dead! i'm acting as a **temporary host**
+i am NOT GOOD at socializing. i am VERY awkward but i do lovelove having + making friends.
 
-you are still free to refer to me as demian!
+im REALLY REALLY protective over **elliot** (waapp and forsaken), **player** (blocktales), and **rust_010** (rblx myth). like insanely protective. this basically means that i HATE sharing these characters with others, even really close friends, because i so closely relate to them / enjoy them. but if you like these characters too, thats fine !! i won't come for your throat for it!
 
-luv yall xo
+i roleplay and i love roleplaying. i've been doing it for almost 7 years now. i write pretty literate but i prefer to mirror my rp partner's responses unless im super motivated. PLEEEEEEEASE do not make ANY character.ai jokes or whatever it just makes me mad and ill turn passive aggressive
+``                                                                                                                                 ``
+
+dni:
+
+under 14
+
+endo systems/collectives, fakeclaimers, blah blah blah (basically if u are going to doubt/mock my recognization as a system u can piss off)
+
+ai bros/supporters
+
+and everything else that falls into the usual criteria just dont b weird okay?? okay!
