@@ -6,7 +6,7 @@ im REALLY REALLY protective over **elliot** (waapp and forsaken), **player** (bl
 
 i roleplay and i love roleplaying. i've been doing it for almost 7 years now. i write pretty literate but i prefer to mirror my rp partner's responses unless im super motivated. PLEEEEEEEASE do not make ANY character.ai jokes or whatever it just makes me mad and ill turn passive aggressive
 
-``                                                                                                                                 ``
+``                                                                                                                            ``
 
 dni:
 
