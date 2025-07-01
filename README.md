@@ -17,3 +17,5 @@ endo systems/collectives, fakeclaimers, blah blah blah (basically if u are going
 ai bros/supporters
 
 and everything else that falls into the usual criteria just dont b weird okay?? okay!
+
+(edit: oh my goddd since you bitches are annoying and dont understand wtf i mean when i say im protective of some characters you can just dni if you are going to walk up to me and say you like them more than me!!! i dooont care if ur joking go awayyeyyyy GO AWAYYY !!!)
