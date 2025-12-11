@@ -1,4 +1,4 @@
-![x](https://64.media.tumblr.com/82e5b6626935977cf9af1c52621468e2/fc4e9f2d31a156b7-3e/s1280x1920/94322331f72526931f3e209152f5aa90d1f5398d.pnj)
+![x](https://64.media.tumblr.com/c5bb19801ce5219bae4df1c60a1b20f0/0d9731b48b7751ca-e4/s540x810/8fb952bf53564b18dda34dc5b9a5efc1e62243bb.gif)
 <div align="center">
 
 [more info on me!](https://partyextravaganza.straw.page/)
@@ -7,4 +7,4 @@
 ps. i can't believe i have to say this but omfg. do not talk to me if you are "neutral" on proshipping/make questionable content with originally underage characters.
 and yes i will still block u if you follow proshippers/are followed by proshippers
 
-![x](https://64.media.tumblr.com/d7cf8d9acc09ece9205b60bdc795f10f/fc4e9f2d31a156b7-9c/s1280x1920/7fcb9207544ff3db3f776fcae2cdc95e0e5b6bd6.pnj)
+![x](https://64.media.tumblr.com/c5bb19801ce5219bae4df1c60a1b20f0/0d9731b48b7751ca-e4/s540x810/8fb952bf53564b18dda34dc5b9a5efc1e62243bb.gif)
