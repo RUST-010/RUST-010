@@ -4,6 +4,8 @@
 
 [more info on me!](https://partyextravaganza.straw.page/)
 
+[sign my ata! i answer in character... usually](https://vinncent.atabook.org)
+
 ps. i can't believe i have to say this but omfg. do not talk to me if you are "neutral" on proshipping/make questionable content with originally underage characters.
 and yes i will still block u if you follow proshippers/are followed by proshippers
 
