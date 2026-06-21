@@ -1,4 +1,6 @@
 <div align="center">
+$\color{cyan}\textsf{this\is\a\test}$
+
 /wip
 
 
